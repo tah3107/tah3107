@@ -1,4 +1,4 @@
-### BOAS VINDAS AO MEU PERFIL ❤
+### BOAS VINDAS AO MEU PERFIL 🤍
 
 meu nome é Tais Aparecida
 
