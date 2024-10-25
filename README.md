@@ -6,7 +6,7 @@ meu nome é Tais Aparecida
 - Estou me desenvolvendo na linguaguem javaScript
 - Utilizo esse espaço para minha organização compratilhamento dos meus projetos desenvolvidos
 
-### Você entrar em contato comigo 
+### Você entrar em contato comigo 📫
 
 00001137668684sp@al.educacao.sp.gov.br
 
